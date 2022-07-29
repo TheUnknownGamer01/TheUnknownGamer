@@ -7,4 +7,6 @@ Connection for my GitHub profile.
 
 -🐦 Twitter UserID: UnknownGamer_Yo
 
--More Coming Soon!
+-▶️ YouTube Coding Channel: https://bit.ly/HowKnowledgeLooksWithCoding
+
+-🌟 More Coming Soon!
